@@ -1,0 +1,1 @@
+# jeju-dialect-dictionary
